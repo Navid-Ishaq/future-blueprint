@@ -1,6 +1,6 @@
 # Effective Meeting Techniques: How to Plan, Lead, and Close Productive Business Meetings
 
-
+![The Ultimate Guide to Effective Meetings - Complete Business Meeting Framework by DeTLeng](02-ultimate-guide-to-effective-meetings-detleng.png)
 ---
 
 # 1. INTRODUCTION TO EFFECTIVE MEETINGS
