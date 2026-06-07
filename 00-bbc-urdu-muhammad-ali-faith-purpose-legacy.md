@@ -1,7 +1,7 @@
 # 🥊☪️ Muhammad Ali: The Name Above the Ground
-<p align="center">
+
 # 🥊Faith • Purpose • Legacy • Character
-</p>
+
   ## A BBC Urdu Story of Faith, Courage, Purpose, and Spiritual Dignity
 
 <p align="center">
